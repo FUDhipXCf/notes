@@ -302,7 +302,9 @@
 
 * [被老影毕业了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498220940)
 * [老影真的很注重隐私了，被扒的泰百女快来学习](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499820587)
-
+<img width="484" height="503" alt="屏幕快照 2026-09-14 下午9 47 25" src="https://github.com/user-attachments/assets/a2fd9e8d-b112-44c3-9213-15c0feb3c7c9" />
+<img width="482" height="196" alt="屏幕快照 2026-09-14 下午9 48 01" src="https://github.com/user-attachments/assets/3955515f-7c87-409d-a4ac-866653fe8a1c" />
+<img width="292" height="570" alt="屏幕快照 2026-09-14 下午9 51 13" src="https://github.com/user-attachments/assets/f78926f8-68a7-4fba-ac7e-501e690d79e7" />
 
 
 
