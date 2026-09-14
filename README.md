@@ -164,6 +164,9 @@
 * [不觉得这个很尴尬吗，生日发这么多一条不回，我都觉得这人情商有问题 二编：结果在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496567920)
 
 * [天呢更尴尬了，同一时间在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496568856)
+  
+* [老糖哭的停不下来影子安慰了吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499769522)
+
 
 * [20250405签售会书展（大飞毯） ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496735533)
 
