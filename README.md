@@ -132,6 +132,151 @@
 
 * [这就是爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497305383)
   
+### 5 贪财
+
+* [盲猜一下这是哪个泰百女的微博点赞](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F334816464)
+
+* [发微博通知手机坏了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496713805)
+
+* [老影给粉丝举二维码](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496623451)
+
+* [谢谢ceo给花钱机会 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498072938)
+
+* [买不买衣服无所谓，快给我钱！！](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498071807)
+
+* [我的ipad碎了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496617310)
+
+<img width="389" height="561" alt="屏幕快照 2026-09-14 下午8 56 02" src="https://github.com/user-attachments/assets/2fe73156-ebfc-470e-b901-4d87a0b8b1e7" />
+<img width="364" height="560" alt="屏幕快照 2026-09-14 下午8 56 07" src="https://github.com/user-attachments/assets/723931e5-17a1-464c-bf09-9762e1dc30e6" />
+
+### 6 私联
+
+* [这一天行程把我忙坏了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496801453)
+
+* [视奸唯粉主页 点赞唯粉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496542901)
+
+* [一次次向我们证明跟泰监影妈sl得有多密切 都是巧合 我懂](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498695842)
+
+### 7 无视搭子 + 倒油
+
+* [糖大姐在bc上蹿下跳的时候有没有期待过影大姐帮你带个签名 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496838206)
+
+* [不觉得这个很尴尬吗，生日发这么多一条不回，我都觉得这人情商有问题 二编：结果在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496567920)
+
+* [天呢更尴尬了，同一时间在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496568856)
+
+* [20250405签售会书展（大飞毯） ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496735533)
+
+* [这不会就是那个磕闹别扭的视频吧，我怎么看着像单方面的 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496743053)
+
+* [你退半步的动作认真的吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499004656)
+
+* [🍬🎞️ 以为是我敏感了，现在看看还是不舒服](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498691086)
+
+### 8 不走心+不敬业
+
+* [影影：我是怎么照顾你的？ ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499139066)
+
+* [老影营bg话术，男女共用手册](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496780735)
+
+* [糖大姐在bc上蹿下跳的时候有没有期待过影大姐帮你带个签名](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496838206)
+
+* [PNamtan有让Film敞开心扉做过什么事吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497054420)
+
+* [糖影三年给对方的生日祝福对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F495687661)
+
+* [有很多人不理解对影的怒点在哪里 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496660869)
+
+* [泰百见面会这样甩脸的都有谁？莫不是第一个吧 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497173675)
+
+* [老影为什么要那样](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497232435)
+
+* [拉了下糖影对本次fc预告的宣传态度](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498678520)
+
+* [三年过去了影影依旧是个哑巴](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497795626)
+
+* [7.3四大姐给老糖买的蛋糕过生日，唯独老影缺席，7.4糖大姐才晒出来因为要加上当天见面会老影在场的图片一起发 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496582320)
+
+### 9 阴阳
+
+* [老影到底会不会夸人啊，夸了半天给老糖挖了个坑😥啥意思](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499129951)
+* [老影轻轻一句你太花心了，老糖千夫所指人鬼共愤 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497136479)
+
+### 10 虐粉
+
+* [发完了秒删的是不是不想粉丝担心](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496863449)
+
+* [是爱岗敬业的小女孩一枚呀](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496969143)
+
+* [忠己小作文 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497567278)
+
+* [小作文 2.0](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939979)
+
+* [泰百姜潮：真的有人痛哭的时候会开摄像头录下来吗?](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496868105)
+
+* [00年2g网络低能量女孩不卖惨专注分享风景的日常](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498706279)
+
+* [2g网直接下场回复搭子毒唯算网暴素人吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939264)
+
+<img width="376" height="622" alt="屏幕快照 2026-09-14 下午9 10 50" src="https://github.com/user-attachments/assets/82802624-f4ca-487e-ae26-27166f5088e5" />
+<img width="422" height="281" alt="屏幕快照 2026-09-14 下午9 10 54" src="https://github.com/user-attachments/assets/eb31aeef-be94-4254-aa31-98af2eeef410" />
+<img width="453" height="646" alt="屏幕快照 2026-09-14 下午9 10 59" src="https://github.com/user-attachments/assets/839d1074-10d9-4f01-bbfa-333752f22c92" />
+<img width="393" height="579" alt="屏幕快照 2026-09-14 下午9 11 04" src="https://github.com/user-attachments/assets/44d0d65e-6225-48ae-852f-b3698855bcf2" />
+<img width="383" height="634" alt="屏幕快照 2026-09-14 下午9 11 12" src="https://github.com/user-attachments/assets/6b1e4240-2380-4011-87b4-02aaae01b729" />
+<img width="398" height="454" alt="屏幕快照 2026-09-14 下午9 11 23" src="https://github.com/user-attachments/assets/654c87a5-a730-4b72-8e10-ed8dd40f8177" />
+<img width="434" height="624" alt="屏幕快照 2026-09-14 下午9 11 27" src="https://github.com/user-attachments/assets/17a9c053-9242-4abf-a5b4-d114e6702deb" />
+<img width="436" height="458" alt="屏幕快照 2026-09-14 下午9 11 32" src="https://github.com/user-attachments/assets/fcf8de42-f5e1-426d-8517-d3ad9446ace3" />
+<img width="393" height="412" alt="屏幕快照 2026-09-14 下午9 11 37" src="https://github.com/user-attachments/assets/a3ca60db-78cf-4a8e-9bb1-efda7420cf16" />
+<img width="372" height="500" alt="屏幕快照 2026-09-14 下午9 11 40" src="https://github.com/user-attachments/assets/c7a37f87-725e-44ad-ac3d-7e4bc789780f" />
+<img width="442" height="363" alt="屏幕快照 2026-09-14 下午9 11 44" src="https://github.com/user-attachments/assets/bf8259fb-2294-4a7b-83e7-5db4087a9e33" />
+
+
+### 11 情商低
+
+* [还有人记得冥王星ep8点名卡姐踩蟑螂这件事嘛](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497027899)
+
+* [敢不敢看看你后边坐的是谁 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496785101)
+
+* [老影其实这次我也有点不舒服](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496756675)
+
+* [香港见面会 ，你先别哭我要媚粉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496740410)
+
+* [影的多重人格](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496728503)
+
+* [话少没人怪你 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497870444)
+
+* [回顾踩蟑螂事件，不爱女爱蟑螂](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497030268)
+
+### 12 撒谎，说一套做一套
+
+* [嘤嘤语录](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498335389)
+
+* [如何看待ym阴阴当年对泡影的澄清/发卖](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497970719)
+
+
+### 13 泰站倒油
+
+* [影鹅太站鼠么意思啊 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499251179)
+
+* [🦵上看到好几个tys被影泰站拉黑了 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499469972)
+
+* [昨天疯狂舞鬼船的泰站这会儿发一家三口是沙溢丝啊，心虚了吗？ ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498275496)
+
+* [影泰站也很满意老艾米](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497554738)
+
+* [谁敢看这个画风对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498242513)
+
+
+### 还有很多证据被🍊没了 ，不管怎么掩盖都改变不了她是烂人的事实
+
+
+
+
+
+
+
+
+
 
 
 
