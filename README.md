@@ -68,6 +68,30 @@
 * [冥王星时期的tag ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497697381)
 * [老影你真的没有过一点真心吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499216714)
 
+### 3 忘本
+
+
+* [影子你心里都明白是吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499014620)
+
+* [恶心人的文案](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634841)
+
+* [冥王星是你事业的转折点，但老影你真的喜欢冥王星吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499205864)
+
+* [老影韩国颁奖典礼时期删双人推广](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499084297)
+
+* [老影又删了好几条双人推广](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499081810)
+
+* [老糖关注了7个cp站，老影仅关注了4个个站，一个cp站都没关注 【二编补反澄清】](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496668017)
+
+* [【投稿】韩国某颁奖典礼，糖影俩人作为直接竞争对手，老影拿下第一后点赞wb唯粉，老糖全平台祝福她](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496645199)
+
+* [反澄清影妈虚假澄清打卡CP应援](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496572220)
+
+* [至此三大只有糖影一对是笑话😃太艺术了，又是六缺一](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496677226)
+
+* [老影扇苍蝇的手势是不是嫌弃中粉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F495079811)
+
+* [其实phi并没有对我说什么建议](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497933815)
 
 
 
