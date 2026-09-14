@@ -119,6 +119,11 @@
 * [反澄清影妈虚假澄清 泡影考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497027366)
 
 * [泡影灵魂伴侣合集 世界上最多巧合的一对](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497323180)
+  
+* [perthfilm泡影同车传闻图 宝马车座子](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497780309)
+  
+*  [泡影糖影同款糖点➕1 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499563762)
+
 
 * [老影24年9月点赞了perth的ig后又取消 （爱是小小心翼翼）](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497678161)
 
