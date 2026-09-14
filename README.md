@@ -31,8 +31,8 @@
 * [这不是我们网速慢不玩手机gr剧宣从不转发bbf合照不发搭子的i人吧](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496532758%3F_spm_id%3DMjkxODIyNzE3)
 * [化妆师又让我想起不舒服的点了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497201571%3F_spm_id%3DMjg3OTIyODg2)
 * [糖影s有没有看影子和p juju的舞台完整版还有排练物料](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497080175%3F_spm_id%3DMjg3OTIyODg2)
-* * [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
-* <img width="518" height="928" alt="261789376657_ pic" src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" />
+* [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
+<img width="518" height="928" alt="261789376657_ pic" src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" />
 <img width="480" height="788" alt="271789376661_ pic" src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" />
 <img width="498" height="704" alt="291789376667_ pic" src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" />
 <img width="494" height="722" alt="281789376664_ pic" src="https://github.com/user-attachments/assets/d65e268d-f563-4a9a-8c99-0636ab0ff58d" />
