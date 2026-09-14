@@ -132,6 +132,9 @@
 * [泡影点赞事件](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498926704)
 
 * [4260514当天颁奖典礼泡影下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497482042)
+  
+* [260514下班视频 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497489487)
+
 
 * [泡影定情之作骨肉相连](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498119979)
 
@@ -281,6 +284,8 @@
 ### 14 业务能力为0
 
 * [老影没有活动是肯定的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499880663)
+<img width="369" height="678" alt="屏幕快照 2026-09-14 下午9 39 11" src="https://github.com/user-attachments/assets/09a973fe-a8a2-4033-b9b5-599915826515" />
+
 
 
 
