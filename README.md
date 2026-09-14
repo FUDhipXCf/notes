@@ -284,6 +284,18 @@
 ### 14 业务能力为0
 
 * [老影没有活动是肯定的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499880663)
+  
+* 同一个问题两个人的回复
+
+**糖**
+
+* [©logo Chinese fan！！ 票来！！糖糖爱... 来自39saku_...](https://weibo.com/1769011094/5339545979850338)
+
+**影**
+
+* [#NamtanFilm[超话]# #namtanfilm# ... 来自煮稀...](https://weibo.com/6222933756/5338787792031706)
+
+
 <img width="369" height="678" alt="屏幕快照 2026-09-14 下午9 39 11" src="https://github.com/user-attachments/assets/09a973fe-a8a2-4033-b9b5-599915826515" />
 
 
