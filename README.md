@@ -31,6 +31,7 @@
 * [这不是我们网速慢不玩手机gr剧宣从不转发bbf合照不发搭子的i人吧](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496532758%3F_spm_id%3DMjkxODIyNzE3)
 * [化妆师又让我想起不舒服的点了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497201571%3F_spm_id%3DMjg3OTIyODg2)
 * [糖影s有没有看影子和p juju的舞台完整版还有排练物料](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497080175%3F_spm_id%3DMjg3OTIyODg2)
+* * [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
 * <img width="518" height="928" alt="261789376657_ pic" src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" />
 <img width="480" height="788" alt="271789376661_ pic" src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" />
 <img width="498" height="704" alt="291789376667_ pic" src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" />
@@ -93,6 +94,44 @@
 
 * [其实phi并没有对我说什么建议](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497933815)
 
+### 4 恋爱
+
+* [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
+
+* [泡影运动会+下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496768574)
+
+* [泡影生日祝福视频](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496777942)
+
+* [泡影2023被圈外人偶遇私下 考艾游+宜家](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497671196)
+
+* [老影是不是偷偷参与步步惊心的拍摄了🧐](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497868624)
+
+* [是你爱爬山还是wjy爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497055812)
+
+* [泡影 🌸圈 🔨证明老影和wjy比和老糖关系更好 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496692321)
+
+* [泡影 25年“巧合” 粤语歌](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496699000)
+
+* [⚠️泡影还在加码 老影今晚发的科特·柯本 26年巧合](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939996)
+
+* [泡影2023考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496941031)
+
+* [反澄清影妈虚假澄清 泡影考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497027366)
+
+* [泡影灵魂伴侣合集 世界上最多巧合的一对](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497323180)
+
+* [老影24年9月点赞了perth的ig后又取消 （爱是小小心翼翼）](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497678161)
+
+* [品牌方也在磕泡影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498117788)
+
+* [泡影点赞事件](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498926704)
+
+* [4260514当天颁奖典礼泡影下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497482042)
+
+* [泡影定情之作骨肉相连](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498119979)
+
+* [这就是爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497305383)
+  
 
 
 
