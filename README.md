@@ -172,6 +172,10 @@
 * [你退半步的动作认真的吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499004656)
 
 * [🍬🎞️ 以为是我敏感了，现在看看还是不舒服](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498691086)
+  
+* [老糖说要爬过去抱影子.影子说好可怕](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499830085)
+
+
 
 ### 8 不走心+不敬业
 
@@ -265,6 +269,11 @@
 * [影泰站也很满意老艾米](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497554738)
 
 * [谁敢看这个画风对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498242513)
+
+### 14 业务能力为0
+
+* [老影没有活动是肯定的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499880663)
+
 
 
 ### 还有很多证据被🍊没了 ，不管怎么掩盖都改变不了她是烂人的事实
