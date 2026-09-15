@@ -187,7 +187,12 @@
 * [老糖说要爬过去抱影子.影子说好可怕](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499830085)
 
 * [点进老影推特账号给我看笑了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496547994) 
+  
 * [對比 bbff和pjuju的照片](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496720293)
+  
+*  [平台数据对比含搭子量](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496681597)
+
+* [糖影5.1-6.15含对方量](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F494720704)
 
 
 ### 8 不走心+不敬业
