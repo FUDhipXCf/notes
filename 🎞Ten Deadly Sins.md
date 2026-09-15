@@ -96,6 +96,8 @@
 
 ### 4 恋爱
 
+* [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
+
 * [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
 
 * [泡影运动会+下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496768574)
