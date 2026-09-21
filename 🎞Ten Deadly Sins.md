@@ -53,6 +53,7 @@
 
 * [浅拉一个ttyy对比🆚](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497979344)
 * [谁能解释解释她到底咋想的 20240903 把搭子截掉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498968961)
+*  [老影李维斯本来发了7张图（3双人4单人），在老糖更新（2双人4单人）后她删掉了一张双人图 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499992784)
 * [老影又删了好几条双人推广](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499081810)
 * [爱女是你的谎言？🥶😇🙁](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634149)
 * [老影发照片故意把老糖截掉啥意思](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496587855)
@@ -173,6 +174,8 @@
 ### 7 无视搭子 + 倒油
 
 * [糖大姐在bc上蹿下跳的时候有没有期待过影大姐帮你带个签名 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496838206)
+  
+*  [影：喜欢艾米影吻戏](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500084460)
 
 * [不觉得这个很尴尬吗，生日发这么多一条不回，我都觉得这人情商有问题 二编：结果在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496567920)
 
