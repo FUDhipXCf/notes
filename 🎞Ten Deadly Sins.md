@@ -60,6 +60,7 @@
 * [影子的目的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499200587)
 * [说到老糖花心我想到个事](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496905022)
 * [所以现在能说我不舒服了吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496540002)
+*  [影影独稠记录贴—阿玛尼](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500446828)
 * [250420 糖影澳门见面会 只顾媚粉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496866468)
 * [糖影日本游](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496550036)
 * [25年写真 我独自美丽](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496587446)
@@ -99,6 +100,8 @@
 * [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
 
 * [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
+  
+*  [追赞wjy经纪人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500439656)
 
 * [泡影运动会+下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496768574)
 
@@ -176,7 +179,8 @@
 * [天呢更尴尬了，同一时间在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496568856)
   
 * [老糖哭的停不下来影子安慰了吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499769522)
-
+  
+* [24年IG点赞](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500453148)
 
 * [20250405签售会书展（大飞毯） ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496735533)
 
