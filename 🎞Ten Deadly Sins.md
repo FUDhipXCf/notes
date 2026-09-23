@@ -73,8 +73,11 @@
 
 ### 3 忘本
 
+* [具有转折意义的角色是月影里的jay](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500616740)
 
 * [影子你心里都明白是吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499014620)
+  
+* [怪不得一直不放糖影fc牛马日的物料 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500624717)
 
 * [恶心人的文案](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634841)
 
