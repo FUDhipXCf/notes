@@ -13,6 +13,33 @@
 
 ---
 
+## 入门先看 2年BBF不如一次阜南fancon助演
+
+*女宝演唱会女同事是不配上ig的，搭子是不能出镜的，*
+
+2026年7月25日，泰国GMMTV在曼谷三洋商场举办“国际小说节2026”活动时，发生了一起中国女粉丝遭现场保安与工作人员暴力对待的冲突事件。事件当天主人公是朱马cp。
+
+2026年8月10日，小姐姐参加完事件主人公朱马cp的fancon助演后ig更新，这时候ig也不金贵了，可以发男同事，但不能发女同事
+
+<img width="2047" height="1279" alt="521791455636_ pic" src="https://github.com/user-attachments/assets/8a2c9047-e5ca-497a-bcf8-28e69c44f455" />
+
+<img width="1080" height="1919" alt="WechatIMG51" src="https://github.com/user-attachments/assets/fba4944e-b1a2-4690-8b5f-4ce4dd0474aa" />
+
+*Once we get through this, we’ll be stronger.
+Thank you for having me and congrats kub bro 🤟🏻*
+
+*等我们熬过这一切之后，我们会变得更强。
+谢谢你邀请我，也恭喜你啊，兄弟！🤟🏻*
+
+**不止ig发言共患难，同时在X上更新小作文一则感谢P'Juju**
+
+<img width="1080" height="999" alt="541791455638_ pic" src="https://github.com/user-attachments/assets/8cd27c0e-28f9-4ec1-89b7-550d1a460a59" />
+
+**对比事发2个月前的刚结束的BBF，当时她的感谢文案是这样的 ，没有女同事，没有搭子**
+
+<img width="1080" height="1820" alt="531791455637_ pic" src="https://github.com/user-attachments/assets/719cdfd1-9757-4bc9-b43d-d63ebefc1a75" />
+
+
 ## 郫县引路
 
 1 爱男
