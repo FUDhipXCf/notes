@@ -15,8 +15,6 @@
 
 ## 入门先看 2年BBF不如一次阜南fancon助演
 
-*女宝演唱会女同事是不配上ig的，搭子是不能出镜的，*
-
 2026年7月25日，泰国GMMTV在曼谷三洋商场举办“国际小说节2026”活动时，发生了一起中国女粉丝遭现场保安与工作人员暴力对待的冲突事件。事件当天主人公是朱马cp。
 
 2026年8月10日，小姐姐参加完事件主人公朱马cp的fancon助演后ig更新，这时候ig也不金贵了，可以发男同事，但不能发女同事
@@ -36,6 +34,9 @@ Thank you for having me and congrats kub bro 🤟🏻*
 <img width="1080" height="999" alt="541791455638_ pic" src="https://github.com/user-attachments/assets/8cd27c0e-28f9-4ec1-89b7-550d1a460a59" />
 
 **对比事发2个月前的刚结束的BBF，当时她的感谢文案是这样的 ，没有女同事，没有搭子**
+
+*女宝演唱会女同事是不配上ig的，搭子是不能出镜的，*
+ [爱女是你的谎言？🥶😇🙁](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634149)
 
 <img width="1080" height="1820" alt="531791455637_ pic" src="https://github.com/user-attachments/assets/719cdfd1-9757-4bc9-b43d-d63ebefc1a75" />
 
@@ -79,23 +80,41 @@ Thank you for having me and congrats kub bro 🤟🏻*
 ### 2 雌竞 + 独美
 
 * [浅拉一个ttyy对比🆚](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497979344)
+  
 * [谁能解释解释她到底咋想的 20240903 把搭子截掉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498968961)
+  
 *  [老影李维斯本来发了7张图（3双人4单人），在老糖更新（2双人4单人）后她删掉了一张双人图 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499992784)
+  
 * [老影又删了好几条双人推广](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499081810)
+  
 * [爱女是你的谎言？🥶😇🙁](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634149)
+  
 * [老影发照片故意把老糖截掉啥意思](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496587855)
+  
 * [影子总在大事上独丑举例10个事](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498903371)
+  
 * [影子的目的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499200587)
+  
 * [说到老糖花心我想到个事](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496905022)
+  
 * [所以现在能说我不舒服了吗 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496540002)
+  
 *  [影影独稠记录贴—阿玛尼](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500446828)
+  
 * [250420 糖影澳门见面会 只顾媚粉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496866468)
+  
 * [糖影日本游](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496550036)
+  
 * [25年写真 我独自美丽](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496587446)
+  
 * [生日打卡](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496819148)
+  
 * [ty日本游](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496824933)
+  
 * [补：老影删掉回复里tag的老糖 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497735202)
+  
 * [冥王星时期的tag ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497697381)
+  
 * [老影你真的没有过一点真心吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499216714)
 
 ### 3 忘本
@@ -160,7 +179,6 @@ Thank you for having me and congrats kub bro 🤟🏻*
   
 *  [泡影糖影同款糖点➕1 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499563762)
 
-
 * [老影24年9月点赞了perth的ig后又取消 （爱是小小心翼翼）](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497678161)
 
 * [品牌方也在磕泡影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498117788)
@@ -208,6 +226,8 @@ Thank you for having me and congrats kub bro 🤟🏻*
 *  [影：喜欢艾米影吻戏](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500084460)
 
 * [不觉得这个很尴尬吗，生日发这么多一条不回，我都觉得这人情商有问题 二编：结果在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496567920)
+  
+* [糖影什么时候开始吵架的](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497570457)
 
 * [天呢更尴尬了，同一时间在自己广播里发了一堆 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496568856)
   
