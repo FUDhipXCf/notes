@@ -19,9 +19,9 @@
 
 2026年8月10日，小姐姐参加完事件主人公朱马cp的fancon助演后ig更新，这时候ig也不金贵了，可以发男同事，但不能发女同事
 
-<img width="2047" height="1279" alt="521791455636_ pic" src="https://github.com/user-attachments/assets/8a2c9047-e5ca-497a-bcf8-28e69c44f455" />
+<img src="https://github.com/user-attachments/assets/8a2c9047-e5ca-497a-bcf8-28e69c44f455" alt="图片1" style="max-width: 100%; height: auto;">
 
-<img width="1080" height="1919" alt="WechatIMG51" src="https://github.com/user-attachments/assets/fba4944e-b1a2-4690-8b5f-4ce4dd0474aa" />
+<img src="https://github.com/user-attachments/assets/fba4944e-b1a2-4690-8b5f-4ce4dd0474aa" alt="图片2" style="max-width: 100%; height: auto;">
 
 *Once we get through this, we’ll be stronger.
 Thank you for having me and congrats kub bro 🤟🏻*
@@ -31,14 +31,14 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 **不止ig发言共患难，同时在X上更新小作文一则感谢P'Juju**
 
-<img width="1080" height="999" alt="541791455638_ pic" src="https://github.com/user-attachments/assets/8cd27c0e-28f9-4ec1-89b7-550d1a460a59" />
+<img src="https://github.com/user-attachments/assets/8cd27c0e-28f9-4ec1-89b7-550d1a460a59" alt="图片" style="max-width: 100%; height: auto;">
 
 **对比事发2个月前的刚结束的BBF，当时她的感谢文案是这样的 ，没有女同事，没有搭子**
 
 *女宝演唱会女同事是不配上ig的，搭子是不能出镜的，*
  [爱女是你的谎言？🥶😇🙁](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496634149)
 
-<img width="1080" height="1820" alt="531791455637_ pic" src="https://github.com/user-attachments/assets/719cdfd1-9757-4bc9-b43d-d63ebefc1a75" />
+<img src="https://github.com/user-attachments/assets/719cdfd1-9757-4bc9-b43d-d63ebefc1a75" alt="图片" style="max-width: 100%; height: auto;">
 
 
 ## 郫县引路
@@ -60,22 +60,39 @@ Thank you for having me and congrats kub bro 🤟🏻*
 * [化妆师又让我想起不舒服的点了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497201571%3F_spm_id%3DMjg3OTIyODg2)
 * [糖影s有没有看影子和p juju的舞台完整版还有排练物料](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497080175%3F_spm_id%3DMjg3OTIyODg2)
 * [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
-<img width="518" height="928" alt="261789376657_ pic" src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" />
-<img width="480" height="788" alt="271789376661_ pic" src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" />
-<img width="498" height="704" alt="291789376667_ pic" src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" />
-<img width="494" height="722" alt="281789376664_ pic" src="https://github.com/user-attachments/assets/d65e268d-f563-4a9a-8c99-0636ab0ff58d" />
-<img width="498" height="862" alt="301789376671_ pic" src="https://github.com/user-attachments/assets/36fc5749-493b-4f97-9ff3-8bee9b332937" />
-<img width="506" height="782" alt="311789376677_ pic" src="https://github.com/user-attachments/assets/78375899-b19e-475d-87e8-6b873128778b" />
-<img width="476" height="756" alt="321789376680_ pic" src="https://github.com/user-attachments/assets/2f8f3397-7dd8-41fb-9f15-76069fa3ecf7" />
-<img width="506" height="914" alt="331789376683_ pic" src="https://github.com/user-attachments/assets/6d9eb4ce-89a0-4b1e-bc5e-c05f83dde553" />
-<img width="490" height="954" alt="341789376686_ pic" src="https://github.com/user-attachments/assets/7afb65f6-fb16-4df1-988e-438e5733e064" />
-<img width="484" height="716" alt="351789376690_ pic" src="https://github.com/user-attachments/assets/8e34bf72-701e-4da8-8028-03d2a17b1f57" />
-<img width="522" height="786" alt="361789376851_ pic" src="https://github.com/user-attachments/assets/203938eb-cf99-43e6-aab4-c637509be99e" />
-<img width="502" height="730" alt="371789376855_ pic" src="https://github.com/user-attachments/assets/fe91dc39-a054-4abd-a945-00ae0c0cfd75" />
-<img width="492" height="844" alt="381789376859_ pic" src="https://github.com/user-attachments/assets/40354f82-6b97-45a5-b98d-4ef021a6854b" />
-<img width="474" height="900" alt="391789376862_ pic" src="https://github.com/user-attachments/assets/5cf961d0-e828-400c-bdd7-f0ae28a946f2" />
-<img width="458" height="764" alt="401789376865_ pic" src="https://github.com/user-attachments/assets/20eb277d-eb35-4a85-a209-883bdb7c8420" />
-<img width="482" height="1108" alt="411789376868_ pic" src="https://github.com/user-attachments/assets/2d870471-6ccb-4fec-b743-a4c14fdd9798" />
+  
+<img src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" alt="图片1" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" alt="图片2" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" alt="图片3" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/d65e268d-f563-4a9a-8c99-0636ab0ff58d" alt="图片4" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/36fc5749-493b-4f97-9ff3-8bee9b332937" alt="图片5" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/78375899-b19e-475d-87e8-6b873128778b" alt="图片6" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/2f8f3397-7dd8-41fb-9f15-76069fa3ecf7" alt="图片7" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/6d9eb4ce-89a0-4b1e-bc5e-c05f83dde553" alt="图片8" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/7afb65f6-fb16-4df1-988e-438e5733e064" alt="图片9" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/8e34bf72-701e-4da8-8028-03d2a17b1f57" alt="图片10" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/203938eb-cf99-43e6-aab4-c637509be99e" alt="图片11" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/fe91dc39-a054-4abd-a945-00ae0c0cfd75" alt="图片12" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/40354f82-6b97-45a5-b98d-4ef021a6854b" alt="图片13" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/5cf961d0-e828-400c-bdd7-f0ae28a946f2" alt="图片14" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/20eb277d-eb35-4a85-a209-883bdb7c8420" alt="图片15" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/2d870471-6ccb-4fec-b743-a4c14fdd9798" alt="图片16" style="max-width: 100%; height: auto;">
+
 
 ### 2 雌竞 + 独美
 
@@ -208,8 +225,10 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 * [我的ipad碎了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496617310)
 
-<img width="389" height="561" alt="屏幕快照 2026-09-14 下午8 56 02" src="https://github.com/user-attachments/assets/2fe73156-ebfc-470e-b901-4d87a0b8b1e7" />
-<img width="364" height="560" alt="屏幕快照 2026-09-14 下午8 56 07" src="https://github.com/user-attachments/assets/723931e5-17a1-464c-bf09-9762e1dc30e6" />
+<img src="https://github.com/user-attachments/assets/2fe73156-ebfc-470e-b901-4d87a0b8b1e7" alt="图片1" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/723931e5-17a1-464c-bf09-9762e1dc30e6" alt="图片2" style="max-width: 100%; height: auto;">
+
 
 ### 6 私联
 
@@ -299,17 +318,27 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 * [2g网直接下场回复搭子毒唯算网暴素人吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939264)
 
-<img width="376" height="622" alt="屏幕快照 2026-09-14 下午9 10 50" src="https://github.com/user-attachments/assets/82802624-f4ca-487e-ae26-27166f5088e5" />
-<img width="422" height="281" alt="屏幕快照 2026-09-14 下午9 10 54" src="https://github.com/user-attachments/assets/eb31aeef-be94-4254-aa31-98af2eeef410" />
-<img width="453" height="646" alt="屏幕快照 2026-09-14 下午9 10 59" src="https://github.com/user-attachments/assets/839d1074-10d9-4f01-bbfa-333752f22c92" />
-<img width="393" height="579" alt="屏幕快照 2026-09-14 下午9 11 04" src="https://github.com/user-attachments/assets/44d0d65e-6225-48ae-852f-b3698855bcf2" />
-<img width="383" height="634" alt="屏幕快照 2026-09-14 下午9 11 12" src="https://github.com/user-attachments/assets/6b1e4240-2380-4011-87b4-02aaae01b729" />
-<img width="398" height="454" alt="屏幕快照 2026-09-14 下午9 11 23" src="https://github.com/user-attachments/assets/654c87a5-a730-4b72-8e10-ed8dd40f8177" />
-<img width="434" height="624" alt="屏幕快照 2026-09-14 下午9 11 27" src="https://github.com/user-attachments/assets/17a9c053-9242-4abf-a5b4-d114e6702deb" />
-<img width="436" height="458" alt="屏幕快照 2026-09-14 下午9 11 32" src="https://github.com/user-attachments/assets/fcf8de42-f5e1-426d-8517-d3ad9446ace3" />
-<img width="393" height="412" alt="屏幕快照 2026-09-14 下午9 11 37" src="https://github.com/user-attachments/assets/a3ca60db-78cf-4a8e-9bb1-efda7420cf16" />
-<img width="372" height="500" alt="屏幕快照 2026-09-14 下午9 11 40" src="https://github.com/user-attachments/assets/c7a37f87-725e-44ad-ac3d-7e4bc789780f" />
-<img width="442" height="363" alt="屏幕快照 2026-09-14 下午9 11 44" src="https://github.com/user-attachments/assets/bf8259fb-2294-4a7b-83e7-5db4087a9e33" />
+<img src="https://github.com/user-attachments/assets/82802624-f4ca-487e-ae26-27166f5088e5" alt="图片1" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/eb31aeef-be94-4254-aa31-98af2eeef410" alt="图片2" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/839d1074-10d9-4f01-bbfa-333752f22c92" alt="图片3" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/44d0d65e-6225-48ae-852f-b3698855bcf2" alt="图片4" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/6b1e4240-2380-4011-87b4-02aaae01b729" alt="图片5" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/654c87a5-a730-4b72-8e10-ed8dd40f8177" alt="图片6" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/17a9c053-9242-4abf-a5b4-d114e6702deb" alt="图片7" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/fcf8de42-f5e1-426d-8517-d3ad9446ace3" alt="图片8" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/a3ca60db-78cf-4a8e-9bb1-efda7420cf16" alt="图片9" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/c7a37f87-725e-44ad-ac3d-7e4bc789780f" alt="图片10" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/bf8259fb-2294-4a7b-83e7-5db4087a9e33" alt="图片11" style="max-width: 100%; height: auto;">
 
 
 ### 11 情商低
@@ -362,16 +391,19 @@ Thank you for having me and congrats kub bro 🤟🏻*
 * [#NamtanFilm[超话]# #namtanfilm# ... 来自煮稀...](https://weibo.com/6222933756/5338787792031706)
 
 
-<img width="369" height="678" alt="屏幕快照 2026-09-14 下午9 39 11" src="https://github.com/user-attachments/assets/09a973fe-a8a2-4033-b9b5-599915826515" />
+<img src="https://github.com/user-attachments/assets/09a973fe-a8a2-4033-b9b5-599915826515" alt="图片" style="max-width: 100%; height: auto;">
+
 
 ### 15 我的小心思
 
 * [被老影毕业了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498220940)
 * [老影真的很注重隐私了，被扒的泰百女快来学习](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499820587)
-<img width="484" height="503" alt="屏幕快照 2026-09-14 下午9 47 25" src="https://github.com/user-attachments/assets/a2fd9e8d-b112-44c3-9213-15c0feb3c7c9" />
-<img width="482" height="196" alt="屏幕快照 2026-09-14 下午9 48 01" src="https://github.com/user-attachments/assets/3955515f-7c87-409d-a4ac-866653fe8a1c" />
-<img width="292" height="570" alt="屏幕快照 2026-09-14 下午9 51 13" src="https://github.com/user-attachments/assets/f78926f8-68a7-4fba-ac7e-501e690d79e7" />
+  
+<img src="https://github.com/user-attachments/assets/a2fd9e8d-b112-44c3-9213-15c0feb3c7c9" alt="图片1" style="max-width: 100%; height: auto;">
 
+<img src="https://github.com/user-attachments/assets/3955515f-7c87-409d-a4ac-866653fe8a1c" alt="图片2" style="max-width: 100%; height: auto;">
+
+<img src="https://github.com/user-attachments/assets/f78926f8-68a7-4fba-ac7e-501e690d79e7" alt="图片3" style="max-width: 100%; height: auto;">
 
 
 ### 还有很多证据被🍊没了 ，不管怎么掩盖都改变不了她干过的事
