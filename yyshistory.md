@@ -1,5 +1,7 @@
 ## 粉随正主还是粉丝影响艺人？一个有问题的艺人，她的粉圈自然也不太平
 
+影妈：一群爱造谣私信提纯的物种
+
 ## 1. 最爱私信cpf造谣提纯的群体
 
 <img src="https://github.com/user-attachments/assets/3291557e-9141-4ef7-ad61-75c92e3b5240" alt="图片" style="max-width: 100%; height: auto;">
