@@ -441,6 +441,12 @@ CP 粉丝原本是因为喜欢这对 CP 才聚集在一起，愿意为 CP 相关
 <img src="https://github.com/user-attachments/assets/c98bc2bd-3441-4fba-a2b9-8ab9064e69be" alt="图片3" style="max-width: 100%; height: auto;">
 <img src="https://github.com/user-attachments/assets/bf702dc3-e925-4acd-ba60-2787705bc2e9" alt="图片1" style="max-width: 100%; height: auto;">
 
+## dw顶着cpf名义开反黑超
+
+不是dw怎么会频繁和被cp超挂黑的dw互动呢？
+
+<img src="https://github.com/user-attachments/assets/845483d8-2153-47d8-8a4d-37f41edccc4d" alt="图片" style="max-width: 100%; height: auto;">
+
 
 
 ## 糖影国内宝宝树保健品商务事件
