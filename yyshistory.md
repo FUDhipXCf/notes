@@ -447,6 +447,19 @@ CP 粉丝原本是因为喜欢这对 CP 才聚集在一起，愿意为 CP 相关
 
 <img src="https://github.com/user-attachments/assets/845483d8-2153-47d8-8a4d-37f41edccc4d" alt="图片" style="max-width: 100%; height: auto;">
 
+## 初代泰百女团学发起人
+
+<img src="https://github.com/user-attachments/assets/f22e0311-6b9f-4b00-9151-dd159f444ca5" alt="图片1" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/54ddc629-e2d3-4f62-891d-8d2fc91b9cf6" alt="图片2" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/3298056b-77a1-4296-b994-94c03b54042e" alt="图片3" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/a4a69bdc-738e-4fb3-8f01-71497f3767b1" alt="图片4" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/c7f8b5af-7c65-4817-b6c6-32b310bdc57c" alt="图片5" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/056116df-efcc-4157-a106-bbe5550bf6b6" alt="图片6" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/7f78652d-62d9-485c-aec7-e0d710c2899f" alt="图片7" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/6e44913e-0f55-43a4-856d-a8256b91fe38" alt="图片8" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/36a7e9c4-a3a1-4dd5-ba8e-6067f1c1a839" alt="图片9" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/e3ddcf5e-a479-40d8-a9a1-6438efc8e9fa" alt="图片10" style="max-width: 100%; height: auto;">
+
 
 
 ## 糖影国内宝宝树保健品商务事件
