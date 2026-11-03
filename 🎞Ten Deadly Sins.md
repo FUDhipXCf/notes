@@ -96,6 +96,9 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 ### 2 雌竞 + 独美
 
+<img src="https://github.com/user-attachments/assets/ac6ad483-cbb9-4bb7-87e0-e22a2c4e3b1b" alt="图片1" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/f06ec70b-118a-4766-87a2-bbc848526292" alt="图片2" style="max-width: 100%; height: auto;">
+
 * [浅拉一个ttyy对比🆚](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497979344)
   
 * [谁能解释解释她到底咋想的 20240903 把搭子截掉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498968961)
