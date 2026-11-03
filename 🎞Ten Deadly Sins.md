@@ -96,8 +96,24 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 ### 2 雌竞 + 独美
 
-<img src="https://github.com/user-attachments/assets/ac6ad483-cbb9-4bb7-87e0-e22a2c4e3b1b" alt="图片1" style="max-width: 100%; height: auto;">
-<img src="https://github.com/user-attachments/assets/f06ec70b-118a-4766-87a2-bbc848526292" alt="图片2" style="max-width: 100%; height: auto;">
+
+## ig双人视频特意挑选无双人照为封面
+
+<img src="https://github.com/user-attachments/assets/dbd74e2e-eefb-4eeb-81b8-320c3b35dfd7" alt="图片1" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/ac6ad483-cbb9-4bb7-87e0-e22a2c4e3b1b" alt="图片2" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/f06ec70b-118a-4766-87a2-bbc848526292" alt="图片3" style="max-width: 100%; height: auto;">
+
+**这是糖同商务视频封面的**
+
+<img src="https://github.com/user-attachments/assets/3633bf35-1892-420b-aa22-3d3cc3c23163" alt="图片1" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/7acb6a2f-d316-4114-8286-56f2f921985e" alt="图片2" style="max-width: 100%; height: auto;">
+
+**不存在默认封面，这是ig发布视频步骤，同视频品牌方与糖的封面都是双人**
+
+<img src="https://github.com/user-attachments/assets/da3d576f-7eb3-4689-b6f8-61b2044a76b2" alt="图片" style="max-width: 100%; height: auto;">
+
+
+
 
 <a href="https://github.com/user-attachments/files/34299594/20240903.pdf" target="_blank" rel="noopener noreferrer">谁能解释解释她到底咋想的 20240903.pdf</a>
 
