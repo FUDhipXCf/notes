@@ -99,6 +99,12 @@ Thank you for having me and congrats kub bro 🤟🏻*
 <img src="https://github.com/user-attachments/assets/ac6ad483-cbb9-4bb7-87e0-e22a2c4e3b1b" alt="图片1" style="max-width: 100%; height: auto;">
 <img src="https://github.com/user-attachments/assets/f06ec70b-118a-4766-87a2-bbc848526292" alt="图片2" style="max-width: 100%; height: auto;">
 
+<a href="https://github.com/user-attachments/files/34299594/20240903.pdf" target="_blank" rel="noopener noreferrer">谁能解释解释她到底咋想的 20240903.pdf</a>
+
+<a href="https://github.com/user-attachments/files/34299592/tys.pdf" target="_blank" rel="noopener noreferrer">tys真能捂 现在还没刷到重复的.pdf</a>
+
+<img src="https://github.com/user-attachments/assets/c2ce394c-9d5d-4a9b-96ff-7f2bbf56026f" alt="图片" style="max-width: 100%; height: auto;">
+
 * [浅拉一个ttyy对比🆚](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497979344)
   
 * [谁能解释解释她到底咋想的 20240903 把搭子截掉](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498968961)
@@ -136,6 +142,9 @@ Thank you for having me and congrats kub bro 🤟🏻*
 * [冥王星时期的tag ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497697381)
   
 * [老影你真的没有过一点真心吗](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499216714)
+
+<img src="https://github.com/user-attachments/assets/204da5ec-5d35-4ca2-b0e1-620ccac64ff7" alt="图片" style="max-width: 100%; height: auto;">
+
 
 ### 3 忘本
 
