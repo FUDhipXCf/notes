@@ -197,6 +197,11 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 ### 4 恋爱
 
+<img width="451" height="575" alt="屏幕快照 2026-11-16 下午1 45 03" src="https://github.com/user-attachments/assets/c97b75c8-59e6-4dc1-8c25-ac3b92f84db3" />
+
+泡影Whoop运动手环唯一互关。证明两人在一个只有他俩开了记步的小群组or单独分享这个账号
+锤点：影连夜设锁（数据不可见）
+
 * [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
 
 * [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
