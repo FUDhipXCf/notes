@@ -197,10 +197,22 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 ### 4 恋爱
 
-<img width="451" height="575" alt="屏幕快照 2026-11-16 下午1 45 03" src="https://github.com/user-attachments/assets/c97b75c8-59e6-4dc1-8c25-ac3b92f84db3" />
+<img src="https://github.com/user-attachments/assets/c97b75c8-59e6-4dc1-8c25-ac3b92f84db3" alt="图片1" style="max-width: 100%; height: auto;">
 
-泡影Whoop运动手环唯一互关。证明两人在一个只有他俩开了记步的小群组or单独分享这个账号
-锤点：影连夜设锁（数据不可见）
+
+**泡影Whoop运动手环唯一互关。证明两人在一个只有他俩开了记步的小群组or单独分享这个账号**
+**锤点：影连夜设锁（数据不可见）**
+
+## 11月17日 王俊勇家人更新ig，家里出现影7月gr见面会从韩国带回的韩国限定版loppy
+
+<img src="https://github.com/user-attachments/assets/adc358fc-de02-4d0b-aba4-37d2f7a4b55c" alt="图片2" style="max-width: 100%; height: auto;">
+
+gr韩国见面会刚好碰上糖的生日，当时gr 其余4人都在场给糖过生日只有影不在已让部分粉丝破防，没想到不在的原因是在逛街给姐夫挑选玩偶
+
+<img src="https://github.com/user-attachments/assets/96940938-ad4b-4a70-bfeb-bd83b5cdb3d7" alt="图片" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/0f4d8cb6-a59f-4ecc-8447-0feb1c76975c" alt="图片3" style="max-width: 100%; height: auto;">
+
+
 
 * [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
 
