@@ -43,56 +43,72 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 ## 郫县引路
 
-1 爱男
+### 1 恋爱
 
-* [talk对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497081075%3F_spm_id%3DMjkxODIyNzE3&amp;_i=887605478646d57)
-* [麦错花轿麦对郎](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497334869%3F_spm_id%3DMjUzNzE1NTQ3&amp;_i=887609168646d57)
-* [坐化妆师腿上让他按痣](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497198492%3F_spm_id%3DMjk2NzIwOTAw&amp;_i=887672408646d57)
-* [老影啥时候这样营业，tys得磕生磕s](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497043164%3F_spm_id%3DMjEzMDM1NDIw)
-* [给搭子宣传的特殊性](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496609194%3F_spm_id%3DMjkxODIyNzE3)
-* [为阜南火了而感动大哭的小小影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497147163%3F_spm_id%3DMjg1NzI5NDUz)
-* [老影妈废话那么多 既然都知道大家在审判什么请正面回应这3点](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497186933%3F_spm_id%3DMjk1NjU1NTg2)
-* [乐子&嫂子｜i人？ 爱人？原来是身边有人？](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F315877710%3F_spm_id%3DNzYyNjgwNzI)
-* [老影bbf感言和阜南演唱会感言对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496537531%3F_spm_id%3DMjkxODIyNzE3)
-* [24年同一个月的推广.老影删了gucci双人.不删bg面条广告](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499228718%3F_spm_id%3DMjk3MDA1Nzc2)
-* [明媚的影影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497082992%3F_spm_id%3DMjg1NzI5NDUz)
-* [这不是我们网速慢不玩手机gr剧宣从不转发bbf合照不发搭子的i人吧](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496532758%3F_spm_id%3DMjkxODIyNzE3)
-* [化妆师又让我想起不舒服的点了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497201571%3F_spm_id%3DMjg3OTIyODg2)
-* [糖影s有没有看影子和p juju的舞台完整版还有排练物料](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497080175%3F_spm_id%3DMjg3OTIyODg2)
-* [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
+<img src="https://github.com/user-attachments/assets/c97b75c8-59e6-4dc1-8c25-ac3b92f84db3" alt="图片1" style="max-width: 100%; height: auto;">
+
+
+## 泡影Whoop运动手环唯一互关。证明两人在一个只有他俩开了记步的小群组or单独分享这个账号**
+**锤点：影连夜设锁（数据不可见）**
+
+## 11月17日 王俊勇家人更新ig，家里出现影7月gr见面会从韩国带回的韩国限定版loppy
+
+<img src="https://github.com/user-attachments/assets/adc358fc-de02-4d0b-aba4-37d2f7a4b55c" alt="图片2" style="max-width: 100%; height: auto;">
+
+gr韩国见面会刚好碰上糖的生日，当时gr 其余4人都在场给糖过生日只有影不在已让部分粉丝破防，没想到不在的原因是在逛街给姐夫挑选玩偶
+
+<img src="https://github.com/user-attachments/assets/96940938-ad4b-4a70-bfeb-bd83b5cdb3d7" alt="图片" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/0f4d8cb6-a59f-4ecc-8447-0feb1c76975c" alt="图片3" style="max-width: 100%; height: auto;">
+
+
+
+* [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
+
+* [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
   
-<img src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" alt="图片1" style="max-width: 100%; height: auto;">
+*  [追赞wjy经纪人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500439656)
 
-<img src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" alt="图片2" style="max-width: 100%; height: auto;">
+* [泡影运动会+下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496768574)
 
-<img src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" alt="图片3" style="max-width: 100%; height: auto;">
+* [泡影生日祝福视频](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496777942)
 
-<img src="https://github.com/user-attachments/assets/d65e268d-f563-4a9a-8c99-0636ab0ff58d" alt="图片4" style="max-width: 100%; height: auto;">
+* [泡影2023被圈外人偶遇私下 考艾游+宜家](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497671196)
 
-<img src="https://github.com/user-attachments/assets/36fc5749-493b-4f97-9ff3-8bee9b332937" alt="图片5" style="max-width: 100%; height: auto;">
+* [老影是不是偷偷参与步步惊心的拍摄了🧐](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497868624)
 
-<img src="https://github.com/user-attachments/assets/78375899-b19e-475d-87e8-6b873128778b" alt="图片6" style="max-width: 100%; height: auto;">
+* [是你爱爬山还是wjy爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497055812)
 
-<img src="https://github.com/user-attachments/assets/2f8f3397-7dd8-41fb-9f15-76069fa3ecf7" alt="图片7" style="max-width: 100%; height: auto;">
+* [泡影 🌸圈 🔨证明老影和wjy比和老糖关系更好 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496692321)
 
-<img src="https://github.com/user-attachments/assets/6d9eb4ce-89a0-4b1e-bc5e-c05f83dde553" alt="图片8" style="max-width: 100%; height: auto;">
+* [泡影 25年“巧合” 粤语歌](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496699000)
 
-<img src="https://github.com/user-attachments/assets/7afb65f6-fb16-4df1-988e-438e5733e064" alt="图片9" style="max-width: 100%; height: auto;">
+* [⚠️泡影还在加码 老影今晚发的科特·柯本 26年巧合](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939996)
 
-<img src="https://github.com/user-attachments/assets/8e34bf72-701e-4da8-8028-03d2a17b1f57" alt="图片10" style="max-width: 100%; height: auto;">
+* [泡影2023考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496941031)
 
-<img src="https://github.com/user-attachments/assets/203938eb-cf99-43e6-aab4-c637509be99e" alt="图片11" style="max-width: 100%; height: auto;">
+* [反澄清影妈虚假澄清 泡影考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497027366)
 
-<img src="https://github.com/user-attachments/assets/fe91dc39-a054-4abd-a945-00ae0c0cfd75" alt="图片12" style="max-width: 100%; height: auto;">
+* [泡影灵魂伴侣合集 世界上最多巧合的一对](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497323180)
+  
+* [perthfilm泡影同车传闻图 宝马车座子](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497780309)
+  
+*  [泡影糖影同款糖点➕1 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499563762)
 
-<img src="https://github.com/user-attachments/assets/40354f82-6b97-45a5-b98d-4ef021a6854b" alt="图片13" style="max-width: 100%; height: auto;">
+* [老影24年9月点赞了perth的ig后又取消 （爱是小小心翼翼）](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497678161)
 
-<img src="https://github.com/user-attachments/assets/5cf961d0-e828-400c-bdd7-f0ae28a946f2" alt="图片14" style="max-width: 100%; height: auto;">
+* [品牌方也在磕泡影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498117788)
 
-<img src="https://github.com/user-attachments/assets/20eb277d-eb35-4a85-a209-883bdb7c8420" alt="图片15" style="max-width: 100%; height: auto;">
+* [泡影点赞事件](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498926704)
 
-<img src="https://github.com/user-attachments/assets/2d870471-6ccb-4fec-b743-a4c14fdd9798" alt="图片16" style="max-width: 100%; height: auto;">
+* [4260514当天颁奖典礼泡影下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497482042)
+  
+* [260514下班视频 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497489487)
 
+
+* [泡影定情之作骨肉相连](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498119979)
+
+* [这就是爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497305383)
+  
 
 ### 2 雌竞 + 独美
 
@@ -195,71 +211,56 @@ Thank you for having me and congrats kub bro 🤟🏻*
 
 * [其实phi并没有对我说什么建议](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497933815)
 
-### 4 恋爱
+1 爱男
 
-<img src="https://github.com/user-attachments/assets/c97b75c8-59e6-4dc1-8c25-ac3b92f84db3" alt="图片1" style="max-width: 100%; height: auto;">
-
-
-**泡影Whoop运动手环唯一互关。证明两人在一个只有他俩开了记步的小群组or单独分享这个账号**
-**锤点：影连夜设锁（数据不可见）**
-
-## 11月17日 王俊勇家人更新ig，家里出现影7月gr见面会从韩国带回的韩国限定版loppy
-
-<img src="https://github.com/user-attachments/assets/adc358fc-de02-4d0b-aba4-37d2f7a4b55c" alt="图片2" style="max-width: 100%; height: auto;">
-
-gr韩国见面会刚好碰上糖的生日，当时gr 其余4人都在场给糖过生日只有影不在已让部分粉丝破防，没想到不在的原因是在逛街给姐夫挑选玩偶
-
-<img src="https://github.com/user-attachments/assets/96940938-ad4b-4a70-bfeb-bd83b5cdb3d7" alt="图片" style="max-width: 100%; height: auto;">
-<img src="https://github.com/user-attachments/assets/0f4d8cb6-a59f-4ecc-8447-0feb1c76975c" alt="图片3" style="max-width: 100%; height: auto;">
-
-
-
-* [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
-
-* [恋爱时间线](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497468336)
+* [talk对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497081075%3F_spm_id%3DMjkxODIyNzE3&amp;_i=887605478646d57)
+* [麦错花轿麦对郎](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497334869%3F_spm_id%3DMjUzNzE1NTQ3&amp;_i=887609168646d57)
+* [坐化妆师腿上让他按痣](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497198492%3F_spm_id%3DMjk2NzIwOTAw&amp;_i=887672408646d57)
+* [老影啥时候这样营业，tys得磕生磕s](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497043164%3F_spm_id%3DMjEzMDM1NDIw)
+* [给搭子宣传的特殊性](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496609194%3F_spm_id%3DMjkxODIyNzE3)
+* [为阜南火了而感动大哭的小小影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497147163%3F_spm_id%3DMjg1NzI5NDUz)
+* [老影妈废话那么多 既然都知道大家在审判什么请正面回应这3点](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497186933%3F_spm_id%3DMjk1NjU1NTg2)
+* [乐子&嫂子｜i人？ 爱人？原来是身边有人？](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F315877710%3F_spm_id%3DNzYyNjgwNzI)
+* [老影bbf感言和阜南演唱会感言对比](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496537531%3F_spm_id%3DMjkxODIyNzE3)
+* [24年同一个月的推广.老影删了gucci双人.不删bg面条广告](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499228718%3F_spm_id%3DMjk3MDA1Nzc2)
+* [明媚的影影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497082992%3F_spm_id%3DMjg1NzI5NDUz)
+* [这不是我们网速慢不玩手机gr剧宣从不转发bbf合照不发搭子的i人吧](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496532758%3F_spm_id%3DMjkxODIyNzE3)
+* [化妆师又让我想起不舒服的点了](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497201571%3F_spm_id%3DMjg3OTIyODg2)
+* [糖影s有没有看影子和p juju的舞台完整版还有排练物料](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497080175%3F_spm_id%3DMjg3OTIyODg2)
+* [澄清贴 澄清一下老影ig不发双人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497287386)
   
-*  [追赞wjy经纪人](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F500439656)
+<img src="https://github.com/user-attachments/assets/83e325d1-7f1b-4656-b0e4-1c6289e236a9" alt="图片1" style="max-width: 100%; height: auto;">
 
-* [泡影运动会+下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496768574)
+<img src="https://github.com/user-attachments/assets/bec8c2ed-dc00-45ad-b3e3-3de7a211c050" alt="图片2" style="max-width: 100%; height: auto;">
 
-* [泡影生日祝福视频](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496777942)
+<img src="https://github.com/user-attachments/assets/37cb2516-85c2-47df-8aac-60a000cc2cc5" alt="图片3" style="max-width: 100%; height: auto;">
 
-* [泡影2023被圈外人偶遇私下 考艾游+宜家](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497671196)
+<img src="https://github.com/user-attachments/assets/d65e268d-f563-4a9a-8c99-0636ab0ff58d" alt="图片4" style="max-width: 100%; height: auto;">
 
-* [老影是不是偷偷参与步步惊心的拍摄了🧐](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497868624)
+<img src="https://github.com/user-attachments/assets/36fc5749-493b-4f97-9ff3-8bee9b332937" alt="图片5" style="max-width: 100%; height: auto;">
 
-* [是你爱爬山还是wjy爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497055812)
+<img src="https://github.com/user-attachments/assets/78375899-b19e-475d-87e8-6b873128778b" alt="图片6" style="max-width: 100%; height: auto;">
 
-* [泡影 🌸圈 🔨证明老影和wjy比和老糖关系更好 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496692321)
+<img src="https://github.com/user-attachments/assets/2f8f3397-7dd8-41fb-9f15-76069fa3ecf7" alt="图片7" style="max-width: 100%; height: auto;">
 
-* [泡影 25年“巧合” 粤语歌](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496699000)
+<img src="https://github.com/user-attachments/assets/6d9eb4ce-89a0-4b1e-bc5e-c05f83dde553" alt="图片8" style="max-width: 100%; height: auto;">
 
-* [⚠️泡影还在加码 老影今晚发的科特·柯本 26年巧合](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496939996)
+<img src="https://github.com/user-attachments/assets/7afb65f6-fb16-4df1-988e-438e5733e064" alt="图片9" style="max-width: 100%; height: auto;">
 
-* [泡影2023考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F496941031)
+<img src="https://github.com/user-attachments/assets/8e34bf72-701e-4da8-8028-03d2a17b1f57" alt="图片10" style="max-width: 100%; height: auto;">
 
-* [反澄清影妈虚假澄清 泡影考艾游 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497027366)
+<img src="https://github.com/user-attachments/assets/203938eb-cf99-43e6-aab4-c637509be99e" alt="图片11" style="max-width: 100%; height: auto;">
 
-* [泡影灵魂伴侣合集 世界上最多巧合的一对](https://www.douban.com/doubanapp/dispatch?uri=%2Ftopic%2F497323180)
-  
-* [perthfilm泡影同车传闻图 宝马车座子](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497780309)
-  
-*  [泡影糖影同款糖点➕1 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F499563762)
+<img src="https://github.com/user-attachments/assets/fe91dc39-a054-4abd-a945-00ae0c0cfd75" alt="图片12" style="max-width: 100%; height: auto;">
 
-* [老影24年9月点赞了perth的ig后又取消 （爱是小小心翼翼）](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497678161)
+<img src="https://github.com/user-attachments/assets/40354f82-6b97-45a5-b98d-4ef021a6854b" alt="图片13" style="max-width: 100%; height: auto;">
 
-* [品牌方也在磕泡影](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498117788)
+<img src="https://github.com/user-attachments/assets/5cf961d0-e828-400c-bdd7-f0ae28a946f2" alt="图片14" style="max-width: 100%; height: auto;">
 
-* [泡影点赞事件](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498926704)
+<img src="https://github.com/user-attachments/assets/20eb277d-eb35-4a85-a209-883bdb7c8420" alt="图片15" style="max-width: 100%; height: auto;">
 
-* [4260514当天颁奖典礼泡影下班](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497482042)
-  
-* [260514下班视频 ](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497489487)
+<img src="https://github.com/user-attachments/assets/2d870471-6ccb-4fec-b743-a4c14fdd9798" alt="图片16" style="max-width: 100%; height: auto;">
 
-
-* [泡影定情之作骨肉相连](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F498119979)
-
-* [这就是爱](https://www.douban.com/doubanapp/dispatch?uri=%2Fgroup%2Ftopic%2F497305383)
   
 ### 5 贪财
 
