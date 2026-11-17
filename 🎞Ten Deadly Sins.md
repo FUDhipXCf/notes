@@ -60,6 +60,10 @@ gr韩国见面会刚好碰上糖的生日，当时gr 其余4人都在场给糖�
 <img src="https://github.com/user-attachments/assets/96940938-ad4b-4a70-bfeb-bd83b5cdb3d7" alt="图片" style="max-width: 100%; height: auto;">
 <img src="https://github.com/user-attachments/assets/0f4d8cb6-a59f-4ecc-8447-0feb1c76975c" alt="图片3" style="max-width: 100%; height: auto;">
 
+<img src="https://github.com/user-attachments/assets/1b7758fb-9ce6-45d8-bdba-18cc8995e03e" alt="图片1" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/4e310dfe-49b0-4bc8-a1ad-bd36e5bd4659" alt="图片2" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/dd9fd6a7-32e3-413d-ad8b-a85798451448" alt="图片3" style="max-width: 100%; height: auto;">
+<img src="https://github.com/user-attachments/assets/2ff9828e-6226-4b98-9bcb-377463edaa9f" alt="图片4" style="max-width: 100%; height: auto;">
 
 
 * [泡影巧合](https://fudhipxcf.github.io/notes/%E6%B3%A1%E5%BD%B1%E5%B7%A7%E5%90%88)
